@@ -1,1 +1,1 @@
-# NEWTONS.APPLE
+# magazine
